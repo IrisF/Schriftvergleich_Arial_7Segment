@@ -1,0 +1,1 @@
+# Schriftvergleich_Arial_7Segment
